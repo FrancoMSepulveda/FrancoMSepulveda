@@ -1,4 +1,4 @@
-![pexels-pixabay-270488](https://github.com/FrancoMSepulveda/FrancoMSepulveda/assets/171515429/210f3e46-9a4a-415b-a414-2ea0fc6ff099)
+![pexels-pixabay-270488](https://github.com/FrancoMSepulveda/FrancoMSepulveda/assets/171515429/e6d4e85e-f5e6-4c6b-851f-474182e58f63)
 
 👋 Hola! Mi nombre es Franco Sepúlveda
 👀 Tengo 25 años y vivo en la ciudad de Cipolletti (RN).
