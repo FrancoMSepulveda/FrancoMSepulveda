@@ -7,4 +7,4 @@
 
 💻 Estoy en mi último año de la carrera de Seguridad E Higiene Laboral.  
 
-💻 Hace poco me interesó el mundo de la programación y el desarrollo web.Por esa razón es que actualmente estoy realizando la Diplomatura Full Stack dictada por la UTN.
+💻 Hace poco me interesó el mundo de la programación y el desarrollo web. Por esa razón es que actualmente estoy cursando la Diplomatura Full Stack dictada por la UTN.
